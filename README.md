@@ -2,5 +2,4 @@
 
 ## Proyecto de Wordpress
 
-holi :3
-holii :D
+En esta rama se subira el video utilizado de fondo en el proyecto.
