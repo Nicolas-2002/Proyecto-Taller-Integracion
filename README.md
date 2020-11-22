@@ -2,5 +2,4 @@
 
 ## Proyecto de Wordpress
 
-holi :3
-holii :D
+Aqui iremos poniendo la informacion y todo lo utilizado para  la entrega de proyecto final.
