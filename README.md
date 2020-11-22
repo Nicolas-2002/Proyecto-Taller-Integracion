@@ -2,5 +2,4 @@
 
 ## Proyecto de Wordpress
 
-holi :3
-holii :D
+En esta rama se subiran todas las posible imagenes  utilizadas en el proyec.
