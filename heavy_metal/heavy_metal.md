@@ -1,0 +1,32 @@
+#Heavy Metal
+
+Es un género musical que incorpora elementos inspirados en el blues rock, el rock ácido de los 60's y de la música clásica, junto al hard rock, con el que comparte rasgos esenciales. El origen del heavy metal remonta a finales de los años 1960, impulsado por algunos grupos de la época, los cuales fueron incorporando sonidos más potentes y distorsionados, agregados a más energía.
+
+##Mediados de los 60
+
+La música blues estadounidense tuvo una gran influencia en los primeros grupos de rock and roll británicos. Grupos como ''The Rolling Stones'' y ''The Yardbirds'' grabaron versiones de muchas canciones clásicas de blues usando guitarras eléctricas, donde muchas de las originales usaban acústicas, y, además, a veces subían el tempo Como consecuencia de este experimento musical, las bandas británicas basadas en el blues desarrollaron lo que se convirtió en el sello del heavy metal: esencialmente un género de guitarras distorsionadas y sonidos altos, construidos alrededor de poderosos acordes 
+
+##Años 70
+En esta década hay 3 bandas que lideran el nacimiento del Heavy Metal,''Black Sabbath'' como precursores y'' Led Zeppelin'' junto a ''Deep Purple'', tomando como base su sonido hard rock, cimentando lo que más tarde sería ''Judas Priest''.
+
+Estas bandas rompen todos los patrones establecidos en cuanto a creatividad, tanto en las técnicas usadas como en la composición musical, dando lugar a invenciones musicales nunca vistas hasta entonces en la música popular.
+
+##Años 80
+A finales de los ’70 y principios de los ’80 el Heavy Metal comienza a ser más duro y rápido. Y aparecen 2 de las bandas más importantes de este género: Iron Maiden y Judas Priest.
+
+Es además en esta década cuando comienzan a surgir subgéneros. Siendo el más notable el ''Thrash Metal ''destacando como bandas más importantes a Metallica, Megadeth, Anthrax y Slayer. Estas bandas comienzan a tocar más rápido, con sonidos y letras agresivos, utilizan distorsiones más brutales y solos a gran velocidad.
+
+Al final de la década aparece otro movimiento derivado del Thrash Metal y que se considera el subgénero más extremo del Metal: El Death Metal, con bandas como Death, Posessed y Obituary, el sonido es más duro y pesado que los anteriores. Utiliza afinaciones más bajas en guitarras, baterías rápidas de doble bombo y estructuras musicales complejas con frecuentes cambios de ritmo. Pero su principal característica son las voces profundas o guturales.
+
+##Años 90
+Durante los 90 las bandas siguen innovando y siguen apareciendo nuevos subgéneros.
+
+El subgénero más destacado en esta década fue el Groove Metal que nació a partir del Thrash-Death y se forjó con discos como Slaughter in the Vatican de Exhorder y Cowboys From Hell de Pantera.
+
+Otro subgenero que cabe destacar es el Industrial Metal que combina la música Metal con elementos de la música industrial, como sintetizadores y secuenciadores. Los máximos exponentes de este subgénero son Fear Factory, Rammstein y Marilyn Manson.
+
+##Años 2000
+A partir de aquí más que subgéneros se da una fusión entre los ya existentes y otros géneros musicales. Derivando del Groove Metal e influenciado por el Grunge, Rap y otros generos tenemos el Nu-Metal con grupos como Korn, Linkin Park y Slipknot.
+
+
+Otras bandas que han destacado retomando subgéneros de los ’80 y ’90 mezclados con nuevas tendencias son Nightwish, Children of Bodom, In Flames y muchas otras.
