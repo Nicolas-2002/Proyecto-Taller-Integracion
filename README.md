@@ -1,6 +1,3 @@
 # Proyecto-Taller-Integracion
 
-## Proyecto de Wordpress
-
-holi :3
-holii :D
+Suban aquí los borradores de la informacion que vamos a subir a la pagina.
